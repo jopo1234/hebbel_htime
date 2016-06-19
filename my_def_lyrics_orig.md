@@ -10,17 +10,23 @@ ______
   - Once again with a new blend, so telephone a friend
   - (Yo, dude, I just got this new song, it's dope man)
 
+______
+
 - 
   - Compact disc to the prime is optimist
   - Fans or friends, I'm universally cosmic
   - Concrete jungles abound
   - Stand by the speakers
 
+______
+
 -  
   - You're smothered and covered up in the sound
   - You stand strong, as you pump your fist
   - I'm talkin' all that jazz
   - Now, what's my definition?
+
+______
 
 -  
   - My definition, my definition
@@ -29,6 +35,7 @@ ______
   - My definition is this
   - My definition, my definition is this, my definition
 
+______
 - 
   - When I kick rhymes, there's somethin' said to do damage
   - Skin so strong, even Superman needs a hand  
