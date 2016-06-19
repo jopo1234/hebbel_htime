@@ -1,31 +1,54 @@
 What the fuck is this?
+
 My definition of a boombastic jazz style
 
+
 Here we go, are you ready for one other?
+
 Dream Warriors' noise is new discover all
+
 Once again with a new blend, so telephone a friend
+
 (Yo, dude, I just got this new song, it's dope man)
 
+
 Compact disc to the prime is optimist
+
 Fans or friends, I'm universally cosmic
+
 Concrete jungles abound
+
 Stand by the speakers
 
+
 You're smothered and covered up in the sound
+
 You stand strong, as you pump your fist
+
 I'm talkin' all that jazz
+
 Now, what's my definition?
 
+
 My definition, my definition
+
 My definition is this
+
 My definition, my definition, my definition
+
 My definition is this
+
 My definition, my definition is this, my definition
 
+
 When I kick rhymes, there's somethin' said to do damage
+
 Skin so strong, even Superman needs a hand
+
 So bob your head-dread, as I kick the funk flow
+
 This rhyme is subliminal, yet, you don't think so
+
 
 I walk with a gold cane, a gold brain, and no gold chain
 Behind the truth lies, there lies a para fix
