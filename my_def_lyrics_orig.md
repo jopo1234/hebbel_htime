@@ -1,9 +1,13 @@
-  
-  - What the fuck is this?
-  - My definition of a boombastic jazz style
+> Beats auf 4 (relativ langsam)  
+ 
+ - What the fuck is this?
+ - My definition of a boombastic jazz style
+
 
 ______
-**First Verse**
+**First Verse** 
+> [...] 2x4 beats
+> 8x4 beats
 ______
 
 
@@ -29,7 +33,8 @@ ______
   - Now, what's my definition?
 
 ______
-**Chorus**
+**Chorus** 
+> 4x4 beats (ich glaube das letzte definition wird noch rueber gezogen
 ______
 
 
@@ -41,6 +46,8 @@ ______
 
 ______
 **Second Verse**
+> [...] 2x4 beats
+> 8x4 beats
 ______
 
 
@@ -59,6 +66,7 @@ ______
 
 ______
 **Chorus**
+> 4x4 beats (ich glaube das letzte definition wird noch rueber gezogen
 ______
 
 
@@ -70,6 +78,8 @@ ______
 
 ______
 **Third Verse**
+> [...] 2x4 beats
+> 8x4 beats
 ______
 
 
@@ -88,6 +98,7 @@ ______
 
 ______
 **Chorus**
+> 4x4 beats (ich glaube das letzte definition wird noch rueber gezogen
 ______
 
 
@@ -100,6 +111,8 @@ ______
 
 ______
 **Fourth Verse**
+> [...] 6x4 beats
+> 8x4 beats
 ______
 
 
@@ -119,6 +132,7 @@ ______
 
 ______
 **Chorus**
+> 4x4 beats (ich glaube das letzte definition wird noch rueber gezogen
 ______
 
 
