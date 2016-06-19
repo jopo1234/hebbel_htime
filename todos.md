@@ -5,7 +5,7 @@
 - [x] original Lyrics besorgen
 - [x] original song 
 - [ ] beats des originals fettdrucken
-- [ ] beats analysieren (12x4 8x4 ??)
+- [x] beats analysieren (12x4 8x4 ??)
 - [ ] wie schnell (bpm)
 - [ ] Text verse 1
 - [ ] Text verse 2
