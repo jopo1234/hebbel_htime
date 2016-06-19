@@ -1,5 +1,5 @@
 > Beats auf 4 (relativ langsam)  
-> +/- 60 bpm
+> +/- 19x4 = 76 bpm
  
  - What the fuck is this?
  - My definition of a boombastic jazz style
@@ -35,7 +35,8 @@ ______
 
 ______
 **Chorus** 
-> 4x4 beats (ich glaube das letzte definition wird noch rueber gezogen
+> 6x4 beats (ich glaube das letzte definition wird noch rueber gezogen
+> Pause im verse gehoert nocht zum chorus?
 ______
 
 
@@ -67,7 +68,8 @@ ______
 
 ______
 **Chorus**
-> 4x4 beats (ich glaube das letzte definition wird noch rueber gezogen
+> 6x4 beats (ich glaube das letzte definition wird noch rueber gezogen
+> Pause im verse gehoert nocht zum chorus?
 ______
 
 
@@ -99,7 +101,8 @@ ______
 
 ______
 **Chorus**
-> 4x4 beats (ich glaube das letzte definition wird noch rueber gezogen
+> 6x4 beats (ich glaube das letzte definition wird noch rueber gezogen
+> Pause im verse gehoert nocht zum chorus?
 ______
 
 
@@ -133,7 +136,7 @@ ______
 
 ______
 **Chorus**
-> 4x4 beats (ich glaube das letzte definition wird noch rueber gezogen
+> 6x4 beats (ich glaube das letzte definition wird noch rueber gezogen
 ______
 
 
