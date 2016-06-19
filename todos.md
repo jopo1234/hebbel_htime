@@ -6,7 +6,7 @@
 - [x] original song 
 - [ ] beats des originals fettdrucken
 - [x] beats analysieren (12x4 8x4 ??)
-- [ ] wie schnell (bpm)
+- [x] wie schnell (60 bpm)
 - [ ] Text verse 1
 - [ ] Text verse 2
 - [ ] Text verse 3
