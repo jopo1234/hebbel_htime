@@ -4,7 +4,6 @@
 
 - [x] original Lyrics besorgen
 - [x] original song 
-- [ ] instrumental version besorgen/ download
 - [ ] beats des originals fettdrucken
 - [ ] beats analysieren (12x4 8x4 ??)
 - [ ] wie schnell (bpm)
@@ -17,7 +16,8 @@
 ## organization
 
 - [x] git hub aufsetzen
-- [ ] Boxen organieser (verstärker?)
+- [ ] instrumental version besorgen/ download
+- [ ] Boxen organisieren (verstärker?)
 - [ ] Mikro organisieren
 - [ ] Bilder organisieren (digital)
 - [ ] outfit steht?
