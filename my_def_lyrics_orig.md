@@ -27,6 +27,7 @@ ______
   - Now, what's my definition?
 
 ______
+______
 
 -  
   - My definition, my definition
@@ -36,11 +37,15 @@ ______
   - My definition, my definition is this, my definition
 
 ______
+______
+
 - 
   - When I kick rhymes, there's somethin' said to do damage
   - Skin so strong, even Superman needs a hand  
   - So bob your head-dread, as I kick the funk flow
   - This rhyme is subliminal, yet, you don't think so
+
+______
 
 - 
   - I walk with a gold cane, a gold brain, and no gold chain
@@ -48,12 +53,18 @@ ______
   - In the mix is where Dream Warriors go
   - Define if you will but I know so, there is no definition
 
+______
+______
+
 - 
   - My definition, my definition
   - My definition is this
   - My definition, my definition, my definition
   - My definition is this
   - My definition, my definition is this, my definition
+
+______
+______
 
 - 
   - Rhyme, though I know it's a flow, it's just like a poet
@@ -68,6 +79,9 @@ ______
   - (Mine is Capital Q)
   - Bags of mostly water search to find my definition
 
+______
+______
+
 - 
   - My definition, my definition, my definition
   - My definition is this
@@ -76,11 +90,16 @@ ______
   - My definition is this
   - My definition, my definition is this, my definition
 
+______
+______
+
 - 
   - I sought beauty through the dust of strife
   - I sought meaning to my music addiction
   - Arise, awaken, we have need to reverse
   - A plague has befallen us, no time to rehearse
+
+______
 
 -  
   - This rhyme speaks, it's speakin', has spoken
@@ -89,6 +108,9 @@ ______
   - You find caskets in my rhyme baskets of rhyme
   - Your definition can define, then, what's my definition?
 
+______
+______
+
 - 
   - My definition, my definition
   - My definition is this
@@ -96,5 +118,8 @@ ______
   - My definition, my definition, my definition
   - My definition is this
   - My definition, my definition is this, my definition
+
+______
+______
 
 - Yo, where'd everybody go?
