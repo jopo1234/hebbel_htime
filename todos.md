@@ -5,8 +5,8 @@
 - [x] original Lyrics besorgen
 - [x] original song 
 - [ ] beats des originals fettdrucken
-- [x] beats analysieren (12x4 8x4 ??)
-- [x] wie schnell (60 bpm)
+- [x] beats analysieren (8x4 zu 6(8)x4)
+- [x] wie schnell (76 bpm)
 - [ ] Text verse 1
 - [ ] Text verse 2
 - [ ] Text verse 3
