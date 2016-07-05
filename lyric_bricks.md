@@ -66,17 +66,24 @@ ______
 - There he is: The man of her life
 - The only one who could sincerely impress her
 - Drilling noobies and pussies: Sergeant Tatman Sir!	
+
 ______
+
 - Lucky you, if he’s not angry today
+
 ______
+
 - You will endure much agony and pain 
 - But you come out as a real man 
 - Ready to tackle your duties as a soldier
 - So get up your arse from that sofa!
+
 ______
+
 - He may yell and shout at anything that moves 
 - But when BEcci calls he gets sweet and sooth
 - Like a soft ice melting in the sun
+
 ______
 
 
@@ -88,9 +95,11 @@ ______
 
 - Bombay, Sagway, Sorry, Away, spray, stay, lay, clay,
 
+______
+
 - Mit der Jacke durch die Hundekacke
 - In der einen Hand die Brötchen
 - In der Anderen ein Fröschchen
 - Du Sammest gerne Schnecken 
 - Die durften nicht verrecken.
-
+______
