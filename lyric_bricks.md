@@ -79,3 +79,18 @@ ______
 - Like a soft ice melting in the sun
 ______
 
+
+** Rhymes on Rebecca und Corey **
+
+______
+
+- Checker, Decker, Lecker, kecker, (Ge)mecker, Mekka, klecker
+
+- Bombay, Sagway, Sorry, Away, spray, stay, lay, clay,
+
+- Mit der Jacke durch die Hundekacke
+- In der einen Hand die Brötchen
+- In der Anderen ein Fröschchen
+- Du Sammest gerne Schnecken 
+- Die durften nicht verrecken.
+
